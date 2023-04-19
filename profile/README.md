@@ -9,6 +9,6 @@ We're just a bunch of friends with a common dream of creating satisfying and sto
 :goberserk: @JustasBelevicius  
 :boom: @tosk3  
 :frog: @orinta-petrovaite  
-:notes: @askfhapodg  
+:tophat: @askfhapodg  
 :herb: @rosierivasleal  
 :paintbrush: Diana  
