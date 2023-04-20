@@ -7,8 +7,8 @@ We're just a bunch of friends with a common dream of creating satisfying and sto
 ## Team
 
 :goberserk: @JustasBelevicius  
-:boom: @tosk3  
+:floppy_disk: @tosk3  
 :frog: @orinta-petrovaite  
 :tophat: @askfhapodg  
 :herb: @rosierivasleal  
-:paintbrush: Diana  
+:eyes: Diana  
