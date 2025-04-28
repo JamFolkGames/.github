@@ -12,3 +12,4 @@ We're just a bunch of friends with a common dream of creating satisfying and sto
 :tophat: [@askfhapodg](https://github.com/askfhapodg)  
 :herb: [@rosierivasleal](https://github.com/rosierivasleal)  
 :eyes: [Diana](https://instagram.com/diana_shuke)  
+:suspect: [@Erlandas](https://github.com/Erlandys)  
